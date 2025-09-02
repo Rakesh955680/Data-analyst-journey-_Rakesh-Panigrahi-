@@ -1,6 +1,6 @@
 # Data-analyst-journey-_Rakesh-Panigrahi-
 
-👋 Hi there! I'm Anwesha Mahapatra
+👋 Hi there! I'm Rakesh 
 
 Welcome to my data world — where raw numbers evolve into stories that inspire, strategies that work, and decisions that matter.
 
