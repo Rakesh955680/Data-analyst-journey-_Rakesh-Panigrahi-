@@ -34,14 +34,19 @@ From optimizing pricing models to streamlining operations or automating tedious 
 🤝 Let’s Connect & Collaborate to turn data into actionable insights
 
 💼 LinkedIn: https://www.linkedin.com/in/rakesh-panigrahi-401094356/
+
 📧 Email: your-email: rakeshpanigrahi250@gamil.com
+
 📞 Contact: 9556803521
 
 📱 Fun Fact: When I’m not analyzing datasets, you’ll probably find me exploring new cafés ☕, decoding people analytics 🧩, or designing colorful dashboards 🎨.
 
 This way, your profile intro feels:
+
 ✅ Professional → clear skills and impact
+
 ✅ Personable → fun fact + storytelling
+
 ✅ Interesting → makes recruiters want to click into projects
 
 
