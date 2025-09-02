@@ -41,13 +41,6 @@ From optimizing pricing models to streamlining operations or automating tedious 
 
 📱 Fun Fact: When I’m not analyzing datasets, you’ll probably find me exploring new cafés ☕, decoding people analytics 🧩, or designing colorful dashboards 🎨.
 
-This way, your profile intro feels:
-
-✅ Professional → clear skills and impact
-
-✅ Personable → fun fact + storytelling
-
-✅ Interesting → makes recruiters want to click into projects
 
 
 
